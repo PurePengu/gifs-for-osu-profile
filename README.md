@@ -1,4 +1,5 @@
 # gifs-for-osu-profile
-![3V1rfUZ](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/d2123df8-48a0-4761-b97d-643182bc21d2)
-![iHj6zZA](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/1470809a-f7ba-42e3-a981-6aa57b0ec69a)
 
+![6](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/b831311e-68b8-4e87-abb8-8c1426cb6b1a)
+
+![3](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/e9ea3ca1-954a-40b0-9d49-65dbdbbf6b40)
