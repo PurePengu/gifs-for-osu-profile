@@ -6,4 +6,4 @@
 
 ![5](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/3311c7fe-69f3-4568-8af6-9b9b36a10e72)
 
-![F1vpuiQWAAA2cWw 1](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/433d4311-32cd-4246-bf69-61fd92d3ec5c)
+![a](https://github.com/PurePengu/gifs-for-osu-profile/assets/116615154/b31c2bed-75a6-4faf-bf79-16893f3dc624)
